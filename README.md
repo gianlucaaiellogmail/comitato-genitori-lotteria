@@ -1,0 +1,1 @@
+# comitato-genitori-lotteria
